@@ -1,6 +1,5 @@
 # jobancoder06.gitHub.i-
-## Activity report of induction program 2024
-| DATE | RESOURCE PERSON  | DESCRIPTION |
+## Activity report of student induction program
 
 | DATE | RESOURCE PERSON | DESCRIPTION | 
 | :---: | :---: | :---: |
@@ -14,11 +13,11 @@
 | :---: | :---: | :---: |
 | 15-07-2024 | Dr.Pyare Lal | In the second time slot, Sir talked about his life experience .He has a lot of experience about everything as he is 76 years old at present.He told us that how he always let his students first to try solving their problems/issues they are facing by themselves. After that he will help them in solving problems. Adding to it, he shared his daughter's exam story that how he let her to understand first without asking for help. |
 | :---: | :---: | :---: |
-| 15-07-2024 | Mr.Sony goyal | He gave a presentation regarding things we should kept in our mind to become successfull. The first and foremost thing is giving 100 percent whatever you do. The second thing is that "do whatever you love" and "love whatever you do". Inspite of this ,he shared his personal journey of gradution and future studies.He also describes LIFE in simply way i.e. LIFE=Learn,Inquire,Future,Explore. At last, he told us about his social sites specially the youtube channel named "MissonCAT" where he teach students and it is one of the best channel to study from. |
+| 15-07-2024 | Mr.Sony goyal | He gave a presentation regarding things we should kept in our mind to become successfull. The first and foremost thing is giving 100 percent whatever you do. The second thing is that "do whatever you love" and "love whatever you do". Inspite of this ,he shared his personal journey of gradution and future studies.He also describes LIFE in a simple way i.e. LIFE=Learn,Inquire,Future,Explore. At last, he told us about his social sites specially the youtube channel named "MissonCAT" where he teach students and it is one of the best channel to study from. |
 | :---: | :---: | :---: |
-| 15-07-2024 | Mr.Pancham | He was the last to share his point of views. He started by explaining the human behaviour by presenting human postures. He shared the valuable knowledge about communication barriers like language barriers.Futhermore,he also told us about the different style of handshakes which have different meaning such as arrogance, confident. He also explained us what different sitting postures indicates to. He conclude by presnting the project made by students with hardwork and shows that nothing is impossible. |
+| 15-07-2024 | Mr.Pancham | He was the last to share his point of views. He started by explaining the human behaviour by presenting human postures. He shared the valuable knowledge about communication barriers like language barriers.Futhermore,he also told us about the different style of handshakes which have different meanings such as arrogance, confident. He also explained us what different sitting postures indicates to. He conclude by presenting the project made by students with hardwork and shows that nothing is impossible. |
 | :---: | :---: | :---: |
-| 16-07-2024 | Mr.Sony goyal | It was a english activity where teachers divide two sections into two teams(A&B). Then, there was a quiz competition between these teams . Quiz contains five rounds with different english activities such as vocabulary test,finding communication barriers through pictures, jumbling of words etc. |
+| 16-07-2024 | Mandeep kaur  | It was a english activity where teachers divide two sections into two teams(A&B). Then, there was a quiz competition between these teams . Quiz contains five rounds with different english activities such as vocabulary test,finding communication barriers through pictures, jumbling of words etc. |
 | :---: | :---: | :---: |
-| 16-07-2024 | Mr.Sony goyal | In the second half, again there was a quiz which was related to a general knowdelge. It was conducted by seven teams with four members in each group. There were seceral rounds in this quiz too. There were questions related to sports, guessing famous personalities through pictures. At last , there was a rapid fire round between the teams. |
+| 16-07-2024 | Jaismeen kaur | In the second half, again there was a quiz which was related to a general knowdelge. It was conducted by seven teams with four members in each group. There were seceral rounds in this quiz too. There were questions related to sports, guessing famous personalities through pictures. At last , there was a rapid fire round between the teams. |
 
