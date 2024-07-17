@@ -5,7 +5,7 @@
 | DATE | RESOURCE PERSON | DESCRIPTION | 
 | :---: | :---: | :---: |
 | 10-07-2024 | Dr.Harpreet kaur | Induction program was started by Harpreet mam(HOD of applied sciences). She guided us about the begining of our engineering journey with determination and concentration. She said a best line that "To do something best,it is not compulsory that everthing you have is best. There will be struggles. |
-| :---: | :---: | :---: |
+
 | 10-07-2024 | Dr.Harpreet kaurAlumini | Then told about his experience as a engineering student in GNDEC. He told us that it is one of the best campus for exploration and for getting new skills. He also shared his story as a student that he was not that focused in first two years and he told us not to do the same mistake instead build new skills and get to know about "what" and "how"
 to do in first and second year. | 
 | :---: | :---: | :---: |
