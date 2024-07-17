@@ -6,8 +6,7 @@
 | :---: | :---: | :---: |
 | 10-07-2024 | Dr.Harpreet kaur | Induction program was started by Harpreet mam(HOD of applied sciences). She guided us about the begining of our engineering journey with determination and concentration. She said a best line that "To do something best,it is not compulsory that everthing you have is best. There will be struggles. |
 | :---: | :---: | :---: |
-| 10-07-2024 | Dr.Harpreet kaurAlumini | Then told about his experience as a engineering student in GNDEC. He told us that it is one of the best campus for exploration and for getting new skills. He also shared his story as a student that he was not that focused in first two years and he told us not to do the same mistake instead build new skills and get to know about "what" and "how"
-to do in first and second year. | 
+| 10-07-2024 | Dr.Harpreet kaurAlumini | Then told about his experience as a engineering student in GNDEC. He told us that it is one of the best campus for exploration and for getting new skills. He also shared his story as a student that he was not that focused in first two years and he told us not to do the same mistake instead build new skills and get to know about "what" and "how" to do in first and second year. | 
 | :---: | :---: | :---: |
 | 10-07-2024 | Dr.Harpreet kaurAlumini | Then shared his life stories that how karma will work. He said that if you do something good to someone, it will always get you something best back. On the other hand doing wrong results in a bad karma. He also told us about the old culture that how people of older generations had never gave a thought that there will be new creations in the future. | 
 | :---: | :---: | :---: |
@@ -17,8 +16,7 @@ to do in first and second year. |
 | :---: | :---: | :---: |
 | 15-07-2024 | Mr.Sony goyal | He gave a presentation regarding things we should kept in our mind to become successfull. The first and foremost thing is giving 100 percent whatever you do. The second thing is that "do whatever you love" and "love whatever you do". Inspite of this ,he shared his personal journey of gradution and future studies.He also describes LIFE in simply way i.e. LIFE=Learn,Inquire,Future,Explore. At last, he told us about his social sites specially the youtube channel named "MissonCAT" where he teach students and it is one of the best channel to study from. |
 | :---: | :---: | :---: |
-| 15-07-2024 | Mr.Pancham | He was the last to share his point of views. He started by explaining the human behaviour by presenting human postures. He shared the valuable knowledge about communication barriers like language barriers.Futhermore,he also told us about the different style of handshakes which have different meaning such as arrogance, confident. He also explained us what different sitting postures indicates to.
-He conclude by presnting the project made by students with hardwork and shows that nothing is impossible. |
+| 15-07-2024 | Mr.Pancham | He was the last to share his point of views. He started by explaining the human behaviour by presenting human postures. He shared the valuable knowledge about communication barriers like language barriers.Futhermore,he also told us about the different style of handshakes which have different meaning such as arrogance, confident. He also explained us what different sitting postures indicates to. He conclude by presnting the project made by students with hardwork and shows that nothing is impossible. |
 | :---: | :---: | :---: |
 | 16-07-2024 | Mr.Sony goyal | It was a english activity where teachers divide two sections into two teams(A&B). Then, there was a quiz competition between these teams . Quiz contains five rounds with different english activities such as vocabulary test,finding communication barriers through pictures, jumbling of words etc. |
 | :---: | :---: | :---: |
