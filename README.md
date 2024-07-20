@@ -1,4 +1,4 @@
-# jobancoder06.gitHub.i-
+# jobancoder06.gitHub.io
 ## Activity report of student induction program
 
 | DATE | RESOURCE PERSON | DESCRIPTION | 
