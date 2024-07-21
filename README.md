@@ -3,7 +3,7 @@
 
 | DATE | RESOURCE PERSON | DESCRIPTION | 
 | :---: | :---: | :---: |
-| 10-07-2024 | Dr.Harpreet kaur | Induction program was started by Harpreet mam(HOD of applied sciences). She guided us about the begining of our engineering journey with determination and concentration. She said a best line that "To do something best,it is not compulsory that everthing you have is best. There will be struggles. |
+| 10-07-2024 | Dr.Harpreet kaur | Induction program was started by Harpreet mam(HOD of applied sciences). She guided us to begin our engineering journey with determination and concentration. She said a best line that "To do something best,it is not compulsory that everthing you have is best. There will be struggles. |
 | :---: | :---: | :---: |
 | 10-07-2024 | Er. Jiwandeep singh,PCS (Alumini) | Then Jiwandeep singh told us about his experience as a engineering student in GNDEC. He told us that it is one of the best campus for exploration and for getting new skills. He also shared his story as a student that he was not that focused in first two years and he told us not to do the same mistake instead build new skills and get to know about "what" and "how" to do in first and second year. | 
 | :---: | :---: | :---: |
@@ -35,7 +35,13 @@
 | :---: | :---: | :---: |
 | 17-07-2024 |  | She taught us the universal human values(UHV) where she explained about the difference between self and body activities. Self activities responses by knowing, assuming, recognising, fulfillmentation whereas body activities responses by recognisation and fulfillmentation. She explained that body requirements are discontinous and self requirements are continous. She also explained Natural acceptance. |
 | :---: | :---: | :---: |
-| 18-07-2024 |  | |
+| 18-07-2024 |  | It was a peer interaction where we get to know about the examination creteria of the campus, division of marks and many more things. Our senior explained us the proper marking scheme of our mid semester and end semester. Then, he taught us that how to calculate the CGPA of marks. He said that you should try to keep cgpa more than 8. He also encourage us to participate in other activities such as sports, cultural activities etc. Lastly, he explained us the each and every fearure of the official website of the campus. |
+| :---: | :---: | :---: |
+| 18-07-2024 | Sandeep kaur | It was our second lecture by sandeep mam. She gave us the few problems of mathematics to try and solve it on our own. And wherever, we felt anything hard, she helped us. She also invitates the students to blackboard to solve problems, so that it will help other students as well. In this way, we solved a lot of sums on differentiation and integeration and it maked our base more strong. |
+| :---: | :---: | :---: |
+| 18-07-2024 | ANO-NCC Dr.Harwinder Singh |  |
+| :---: | :---: | :---: |
+| 18-07-2024 | Coordinator-NSS Er.Jasvir Singh Grewal |  |
 | :---: | :---: | :---: |
 | 19-07-2024 | Er.Kanwardeep Kalra | She started by her introduction. She told us about his qualification and job experience. Then she showed us the interview of placement where there were four candidates with different skills and behaviour such as some of them was rude,nervous and casually dresses whereas,some of them were confident and had good communication skills.Then she explained us that how everything is around the letter C i.e.childhood->campus->carrer->coporate->compensation. Then we learned about the difference between hard skills and soft skills. She explained us ABC that is Apperance, behaviour and communication skills in such a wonderful way. |
 | :---: | :---: | :---: |
