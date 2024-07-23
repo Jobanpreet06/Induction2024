@@ -41,7 +41,7 @@
 | :---: | :---: | :---: |
 | 18-07-2024 | ANO-NCC Dr.Harwinder Singh |  |
 | :---: | :---: | :---: |
-| 18-07-2024 | Coordinator-NSS Er.Jasvir Singh Grewal |  |
+| 18-07-2024 | Coordinator-NSS Er.Jasvir Singh Grewal | He gave us the deep information about NSS as follows:- The National Service Scheme (NSS) is a Central Sector Scheme. During camps, the NSS volunteers are actively involved in the activities like cleaning of village surroundings, road sides, temples and ditches, desilting of ponds, tree planting, kitchen and terrace gardening, fire rescue and safety programme, agricultural conference and exhibition, soil health camp, health camp, eye checkup camp, blood donation and many more. Volunteering for various tasks under NSS activities allows students to become confident, develop leadership skills, and learn about different people from different walks of life. You can also earn credits (helpful in case you have backlogs), if you have worked for 100+ hours in NSS. |
 | :---: | :---: | :---: |
 | 19-07-2024 | Er.Kanwardeep Kalra | She started by her introduction. She told us about his qualification and job experience. Then she showed us the interview of placement where there were four candidates with different skills and behaviour such as some of them was rude,nervous and casually dresses whereas,some of them were confident and had good communication skills.Then she explained us that how everything is around the letter C i.e.childhood->campus->carrer->coporate->compensation. Then we learned about the difference between hard skills and soft skills. She explained us ABC that is Apperance, behaviour and communication skills in such a wonderful way. |
 | :---: | :---: | :---: |
