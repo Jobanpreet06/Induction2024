@@ -64,3 +64,13 @@
 | 24-07-2024 |  | He talked about CML(Center of multi-faced learning), the mission and vision of CML, organs of CML :-NPTEL() :-Skill and personality development. He told us that the good communication skills are the key to success. He also explained us some points related to internships. At last, he shared the valuable page(SWAYAM) which taught various concepts to individuals according to their fields within the limited time duration(4 weeks, 8 weeks, 12 weeks). One can also get a completion certificate of your online course. He helped us to make our profiles on swayam to gain knowledge about different concepts. |
 | :---: | :---: | :---: |
 | 24-07-2024 |  | There was a singing performance by our seniors in the starting to make us feel relaxed. Then, they started by explaining things related to the causmic club. They talked about the workshops in club . Also told us about history of this club, apex & acme, magazines. They also shared social media handles to remain updated with the upcoming events. Causmic club include different activities like- event organisation, anchoring, technical, photography. At last, they gave us the scanner to fill form to become a part of the causmic club. |
+| :---: | :---: | :---: |
+| 25-07-2024 |  | Mam talked about the uhv test and she revised us chapter 1 and chapter 2 where she talked about natural acceptance, prosperity, value education, aspirations, body and self requirements etc. Then, she taught us chapter 3(understanding coexistence of the human body). She explained everything nicely. |
+| :---: | :---: | :---: |
+| 25-07-2024 |  | It was a peer interaction where our seniors maked us familiar to the aap named canva where we learnt how to make different pages like thumbnails for social media, invitations, advertisements using different features like shapes, pictures, frames, fonts, colours, gradient. At last, we submit our canva files at Google form. |
+| :---: | :---: | :---: |
+| 26-07-2024 |  | Mam talked about meditation. She told us that it helps us to stay more focused. Then, she shared a video on spiritual meditation and explained the same to us. She taught us the posture’s of meditation. She told us that you should cross your hands and legs and close your eyes to meditate. We also did the same in the auditorium for around 15 minutes and it makes us felt like relaxed and light. |
+| :---: | :---: | :---: |
+| 26-07-2024 |  | There was a solo singing and dance competition where students sang different songs and danced in different dancing forms. It was a great fun. After the performances, judges explained them the ways to perform on stage and they announced the results in the afternoon. |
+
+
