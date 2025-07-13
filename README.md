@@ -1,4 +1,4 @@
-# jobancoder06.gitHub.io
+# INDUCTION PROGRAM 2024
 # Activity report of student induction program
 
 | DATE | RESOURCE PERSON | DESCRIPTION | 
